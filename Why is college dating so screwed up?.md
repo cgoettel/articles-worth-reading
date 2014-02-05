@@ -1,6 +1,6 @@
-**Source:** http://www.cosmopolitan.com/sex-love/relationship-advice/college-dating-screwed-up
-**Author:** Charlotte Lieberman
-**Date:** 2013-02-03
+- **Source:** http://www.cosmopolitan.com/sex-love/relationship-advice/college-dating-screwed-up
+- **Author:** Charlotte Lieberman
+- **Date:** 2013-02-03
 
 **Dating in college has never been easy. But today, with everyone texting with emoji and navigating an increasingly fluid sexuality, it can seem almost impossible. Charlotte Lieberman, a recent Harvard grad, takes on what’s wrong with love on campus.**
 
