@@ -1,3 +1,7 @@
+**Source:** http://www.cosmopolitan.com/sex-love/relationship-advice/college-dating-screwed-up
+**Author:** Charlotte Lieberman
+**Date:** 2013-02-03
+
 **Dating in college has never been easy. But today, with everyone texting with emoji and navigating an increasingly fluid sexuality, it can seem almost impossible. Charlotte Lieberman, a recent Harvard grad, takes on what’s wrong with love on campus.**
 
 It is 9 p.m. on a November Saturday at Harvard. I am sitting in my dorm, having just applied Sally Hansen leopard-print press-on nails and wearing a $24 chiffon dress from Forever 21 that my sister told me “looks really expensive.” I am waiting to hear from a nerdy but cute guy I’ll call Nate*, whom I know from class. He asked me out last night. Well, sort of.
